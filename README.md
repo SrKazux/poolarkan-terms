@@ -1,4 +1,4 @@
-# Termos de Serviço — Pool Arkan
+# Termos de Serviço — Poolbot
 
 Última atualização: 15 de Maio de 2026
 
