@@ -116,4 +116,6 @@ Os Termos de Serviço podem ser atualizados a qualquer momento. O uso contínuo 
 
 ## 11. Contato
 
-Caso tenha dúvidas, entre em contato através do Discord oficial do Pool Arkan.
+Caso tenha dúvidas, entre em contato através; 
+Discord; discord.gg/rdHb86Chyy
+Rede Sociais :linktr.ee/GregPoolOFC
